@@ -4,6 +4,4 @@ Présentation :
 
 	- Témoignage :
 	
-		Rachid est un être exceptionnel, il connait les secrets de l'Univers.
-		
-		
+		Rachid est un être exceptionnel, il connait les secrets de l'Univers
